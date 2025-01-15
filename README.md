@@ -1,6 +1,4 @@
-Here’s an attractive and engaging LinkedIn post description for your Power BI project:  
 
----
 
 🚀 Unveiling My Latest Power BI Project!🎉  
 
